@@ -1,0 +1,1 @@
+<h1>SEJARAH SMKN2</h1>
